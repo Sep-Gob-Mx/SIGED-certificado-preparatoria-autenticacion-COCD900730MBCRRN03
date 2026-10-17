@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-COCD900730MBCRRN03
+COCD900730MBCRRN03
